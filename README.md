@@ -1,1 +1,1 @@
-# Hi there, I'm Michael 👋
+# Hi there! 👋
